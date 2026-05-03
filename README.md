@@ -1,0 +1,1 @@
+_“The word (temul) was best exemplified by ‘the look in the eye of the horse that is racing where it wants to go, no matter what the rider wants’”_ –  Jack Weatherford, Genghis Khan and the Making of the Modern World (2004)
